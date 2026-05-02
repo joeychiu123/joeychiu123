@@ -104,6 +104,6 @@
 
 *持續學習・系統思考・創造人資價值*
 
-![Profile Views](https://komarev.com/ghpvc/?username=joeychiu&color=brightgreen&style=flat-square)
+![Visitors](https://visitor-badge.laobi.icu/badge?page_id=joeychiu123.joeychiu123)
 
 </div>
