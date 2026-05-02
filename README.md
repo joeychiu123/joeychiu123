@@ -95,7 +95,7 @@
 
 對人資系統建置、政府補助申請、或 HR 顧問合作有興趣？歡迎聯繫！
 
-- 📧 Email: `joey.chiu@email.com`
+- 📧 Email: `a0970907756@gmail.com`
 - 💼 LinkedIn: [linkedin.com/in/joeychiu](https://linkedin.com)
 
 ---
